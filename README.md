@@ -1,0 +1,4 @@
+- 👋 Witaj Jestem @aviron-dsgn
+- 👀 Interesuję się Elektroniką
+- 🌱 Właśnie uczę się JS
+- 📫 Kontakt na discord - https://discord.gg/2wwEmHTc82
